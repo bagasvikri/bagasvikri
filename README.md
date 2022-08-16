@@ -1,6 +1,6 @@
 ### Hi bagas 😠😩 😭☹️
 
- ![foto avatar](/avatar1.png)
+ ![foto orang kaya](/download2.jpg)
 <!--
 **bagasvikri/bagasvikri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
